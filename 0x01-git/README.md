@@ -1,1 +1,1 @@
-clear
+victor is cool
